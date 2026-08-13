@@ -228,7 +228,7 @@ Originally from Myanmar 🇲🇲 — Motivated by real flood disasters affecting
 
 - GitHub: [github.com/myatnoewai9669-cmd](https://github.com/myatnoewai9669-cmd)
 - LinkedIn: [linkedin.com/in/myat-noe-wai-10a6b3406](https://linkedin.com/in/myat-noe-wai-10a6b3406)
-
+Blogspot: https://rescuernetai.blogspot.com/2026/08/rescuer-net-ai-asean-disaster-early.html
 ---
 
 ## 📋 Competition Info
